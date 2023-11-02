@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @GhadatOmran
 - 👀 I’m interested in Binance
-- 🌱 I’m currently learning About Economic Projects
+- 🌱 I’m currently learning About Economic Project
 - 💞️ I’m looking to collaborate on Situation 
 - 📫 How to reach me with mailing me or talk
 
