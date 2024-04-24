@@ -2,7 +2,7 @@
 - 👀 I’m interested in Binance
 - 🌱 I’m currently learning About Economic Project
 - 💞️ I’m looking to collaborate on Situation 
-- 📫 How to reach me with mailing me or talk                                                                                                                                                                  
+- 📫 How to reach me with mailing me or talk                                                                                                                                                                   
     
 <!---
 GhadatOmran/GhadatOmran is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
